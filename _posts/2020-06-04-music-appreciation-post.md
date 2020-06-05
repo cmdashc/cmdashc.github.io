@@ -1,7 +1,7 @@
 I love how a lot of people say, "Oh I listen to everything!" and then they won't acknowledge certain genres of music at all. On the other hand, I'm that weirdo that says that and really does it. 
 
 Naturally, with having an eclectic taste, listening to really trippy stuff happens sometimes. I've taken some knocks over the years when people have peeped my CD collection, or listened to my playlists. By knocks, I mean kids back when saying, "You listen to gay music," or "That's white music!" It's all good; I ain't one to hold grudges. Besides, I have receipts.
-I can trace my influences, same way probably everyone does:
+I can trace influences in my most formative years, and I got it honestly, same way probably everyone does:
 
 1. my parents
 2. my uncles
