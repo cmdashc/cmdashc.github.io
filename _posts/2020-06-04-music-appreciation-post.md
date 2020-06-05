@@ -31,7 +31,7 @@ Even more inexplicable? I listened to KPop in my Korean friends dorm room; of co
 
 As I wind this puppy down, it's not my entire history of music until I mention the Purple One himself. We were kids when we'd take road trips out to Alabama or up to Ohio; my mother's ex-husband would play Prince albums without skipping a song. She might have hated it, but she knew and shared with me that Prince was adjacent to the SDA church. I guess that could've been why I connected with the lyrics of his songs; or it could've been that, coincidentally, my father also has all the Prince albums. I don't know. What I do know is that soulful and funky energy ran though all Prince's music; even the years he changed his name to a symbol. 
 
-I kinda feel lame that I spent most of my mid-twenties catching up on Motown and Staxx, ect, like really hearing it for the first time. Yea, Soul Train came on during the Sabbath, so I wouldn't see that but once in a blue moon. But that sound has proven to stand the test of time, and it's in the same tier as hip-hop for me.[^3]
+I kinda feel lame that I spent most of my mid-twenties catching up on Motown and Staxx, ect, like really hearing it for the first time. Yea, Soul Train came on during the Sabbath, so I wouldn't see that but once in a blue moon. That's the R&B and soul that has stood the test of time; it's in the same tier of importance as hip-hop and gospel, far as I'm concerned.[^3]
 
 So in short; if it's got a groove. Stanky horns. Percussion. Vocals in the mid- to lower registers. That sort of musicianship where they start cuttin' up and shoot just the biggest, toothiest smiles at each other? Some combination of all that. That's my shit right there. That's what I appreciate.
 
