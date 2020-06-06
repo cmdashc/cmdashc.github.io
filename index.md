@@ -1,1 +1,1 @@
-Chris Moore-Cooke's weblog
+this blog's dedicated to Lawrence's boombox
